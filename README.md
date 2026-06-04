@@ -8,7 +8,7 @@ E sim, eu ser mogado as vezes mas isso deixa de canto 😂
 <summary> oi kin </summary>
 <div align="center">
 
-guhu eu ki da 
+guhu eu ser ki da 
 scag (Regretevator)
 
 Nine (bfdi/xfohv)
