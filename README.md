@@ -34,9 +34,9 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 <br>
 • Darkshipper
 <br>
-• Zoofilos
+• Zoolofico
 <br>
-• Hyper
+• Hypersexual
 </details>
 
 <br> 
