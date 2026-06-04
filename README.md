@@ -44,5 +44,5 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 
 gostaria de agradecer meu boifriendo por ter feito pra mim, mwa
 <div align="center">
-<img width="285" height="231" alt="1000123761" src="https://github.com/user-attachments/assets/ca58f3d7-6bf3-47f9-9756-31fe030b77d5" />
+<img width="142" height="120" alt="1000123761" src="https://github.com/user-attachments/assets/ca58f3d7-6bf3-47f9-9756-31fe030b77d5" />
 
