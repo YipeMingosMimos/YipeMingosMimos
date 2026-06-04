@@ -34,7 +34,7 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 <br>
 • Darkshipper
 <br>
-• Zoolofico
+• VAI SER ZOOLOGICO ENTAO OK 😭💔
 <br>
 • Hypersexual
 </details>
