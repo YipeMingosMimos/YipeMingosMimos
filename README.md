@@ -29,13 +29,13 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 <details>
 <summary>  DNI </summary>
 • Pessoal que usa ;-; a CADA segundo.
-  
+  <br>
 • Uma pessoa de maior com segundas intenções. /MAP
-
+<br>
 • Darkshipper
-
+<br>
 • Zoofilos
-
+<br>
 • Hyper
 </details>
 
