@@ -20,5 +20,7 @@ Cantarolador (msm)
 <details>
 <summary> seta </summary>
 Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz 
+  <div align="center">
+<img width="1292" height="412" alt="1000123745" src="https://github.com/user-attachments/assets/e644085f-f976-440e-a17f-102116fcd566" />
 
 
