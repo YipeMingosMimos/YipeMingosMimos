@@ -1,7 +1,7 @@
 <div align="center">
 <img width="340" height="317" alt="1000123718" src="https://github.com/user-attachments/assets/7e14bcf3-1f80-4da1-92a7-0d3d60057330" />
   
-Ohios ohios eu ser yipe e haha eu ter muitas auras.
+Ohios ohios eu ser yipe e haha eu ter muitas auras
 
 E sim, eu ser mogado as vezes mas isso deixa de canto 😂
 <details>
@@ -28,9 +28,9 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 
 <details>
 <summary>  DNI </summary>
-• Pessoal que usa ;-; a CADA segundo.
+• Pessoal que usa ;-; a CADA segundo
   <br>
-• Uma pessoa de maior com segundas intenções. /MAP
+• Uma pessoa de maior com segundas intenções /MAP
 <br>
 • Darkshipper
 <br>
