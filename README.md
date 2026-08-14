@@ -46,3 +46,13 @@ gostaria de agradecer meu [amiguinho](https://github.com/kaleidoskulls) por ter 
 <div align="center">
 <img width="142" height="120" alt="1000123761" src="https://github.com/user-attachments/assets/ca58f3d7-6bf3-47f9-9756-31fe030b77d5" />
 
+<br>
+oi eu tô tentando faze isso tá, looking pra oque meu amiguinho fez e tenta diciona umas coisas por mim mesmo, mas meu deus eu tô com muita priguiça 🤬 
+<div aling="center"> 
+
+  <details>
+<summary> teste oi </summary>
+<div aling="center">
+ok eu acho que isso deu certo estou proud de mim 😄 eu esperava ser mais difícil mas tipo o problema é não tenta 😂 ok euvo tenta tasa imagi outra hora
+<div align="center">
+</details>
