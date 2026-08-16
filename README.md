@@ -54,5 +54,7 @@ oi eu tô tentando faze isso tá, looking pra oque meu amiguinho fez e tenta dic
 <summary> teste oi </summary>
 <div aling="center">
 ok eu acho que isso deu certo estou proud de mim 😄 eu esperava ser mais difícil mas tipo o problema é não tenta 😂 ok euvo tenta tasa imagi outra hora
+
+  :trollface: oie yipe
 <div align="center">
 </details>
