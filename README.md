@@ -57,4 +57,7 @@ ok eu acho que isso deu certo estou proud de mim 😄 eu esperava ser mais difí
 
   :trollface: oie yipe
 <div align="center">
+
+eu ri o troll face 
+<div align="center">
 </details>
