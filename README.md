@@ -59,5 +59,6 @@ ok eu acho que isso deu certo estou proud de mim 😄 eu esperava ser mais difí
 <div align="center">
 
 eu ri o troll face 
+😳😳😳😳😳😳 oie
 <div align="center">
 </details>
