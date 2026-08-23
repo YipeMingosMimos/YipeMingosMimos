@@ -1,5 +1,6 @@
 <div align="center">
-<img width="340" height="317" alt="1000123718" src="https://github.com/user-attachments/assets/7e14bcf3-1f80-4da1-92a7-0d3d60057330" />
+<img width="300" height="250" alt="dmhntfj-e68431ba-cc74-4194-ae56-68c66a295d50" src="https://github.com/user-attachments/assets/29859baa-fff4-4711-a4af-bb0c8d8dfa1e" />
+
   
 Ohios ohios eu ser yipe e haha eu ter muitas auras
 
@@ -65,4 +66,5 @@ ok eu acho que isso deu certo estou proud de mim 😄 eu esperava ser mais difí
 eu ri o troll face 
 😳😳😳😳😳😳 oie
 <div align="center">
+  
 </details>
