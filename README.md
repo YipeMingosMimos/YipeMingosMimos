@@ -18,8 +18,6 @@ Flame Face (guacamelee)
 
 Cantarolador (msm)
 
-eu não vo coloca aqui profeso koro...... eu nao vo ta........ eu só não vo.... ok e vo sim eu aceito meu destino
-
 koro sensei (assasination classroom)
 </details>
 
