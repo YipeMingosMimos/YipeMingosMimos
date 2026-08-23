@@ -64,5 +64,11 @@ ok eu acho que isso deu certo estou proud de mim 😄 eu esperava ser mais difí
 eu ri o troll face 
 😳😳😳😳😳😳 oie
 <div align="center">
+
+<div align="center">
+  <img width="200" height="200" alt="images - 2026-08-21T201939 593" src="https://github.com/user-attachments/assets/c77a2c36-d90d-4a26-a389-2324cd9f7133" />
   
+agora eu tenho poder nas minhas mãos....... grandes poderes.... imensos....
+  <div align="center">
+    
 </details>
