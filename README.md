@@ -66,5 +66,11 @@ oi você é infeliz sad emo guy 😱??? leia agoea as frases emocionais emociona
   
 •levante-se, pois um longo dia nos teremos, e se descansamos.. nunca andaremos. -gumball
 <div aling="center">
-  
+
+•X i'm fucking engenheiro..... -four
+<div aling="center">
+
+  •backrooms at stake! -clark
+  <div aling="center">
+    
 </details>
