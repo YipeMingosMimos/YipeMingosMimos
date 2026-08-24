@@ -76,3 +76,20 @@ oi você é infeliz sad emo guy 😱??? leia agora essas frazes emocionais emoci
   •nos não precisamos de nada, pois temos o amor, e o amor dura pra sempre. -grace
   <div aling="center">
 </details>
+
+<br>
+
+<div aling="center">
+oi teste again
+
+  <div aling="center">
+<img width="220" height="220" alt="1333 Sem Título5" src="https://github.com/user-attachments/assets/eebeada6-5911-4e77-946d-22f812eb12e0" />
+    
+<img width="200" height="220" alt="1333 Sem Título2" src="https://github.com/user-attachments/assets/563c2241-7692-4941-a3c7-e62a58171bab" />
+
+<img width="200" height="220" alt="1333 Sem Título3" src="https://github.com/user-attachments/assets/f9345c33-6829-47b8-87dd-5b0b85ac3782" />
+
+<img width="220" height="220" alt="1333 Sem Título4" src="https://github.com/user-attachments/assets/899a15cc-a04f-4cd6-8a51-9d40695d7583" />
+
+<img width="200" height="220" alt="1333 Sem Título" src="https://github.com/user-attachments/assets/d8412dcd-1357-4abe-a89a-ce34158f4491" />
+
