@@ -50,25 +50,21 @@ gostaria de agradecer meu [amiguinho](https://github.com/kaleidoskulls) por ter 
 <img width="142" height="120" alt="1000123761" src="https://github.com/user-attachments/assets/ca58f3d7-6bf3-47f9-9756-31fe030b77d5" />
 
 <br>
-oi eu tô tentando faze isso tá, looking pra oque meu amiguinho fez e tenta diciona umas coisas por mim mesmo, mas meu deus eu tô com muita priguiça 🤬 
-<div aling="center"> 
 
   <details>
-<summary> teste oi </summary>
+<summary> fraze de inspiração semanal</summary>
 <div aling="center">
-ok eu acho que isso deu certo estou proud de mim 😄 eu esperava ser mais difícil mas tipo o problema é não tenta 😂 ok euvo tenta tasa imagi outra hora
-
-  :trollface: oie yipe
-<div align="center">
-
-eu ri o troll face 
-😳😳😳😳😳😳 oie
-<div align="center">
-
-<div align="center">
-  <img width="200" height="200" alt="images - 2026-08-21T201939 593" src="https://github.com/user-attachments/assets/c77a2c36-d90d-4a26-a389-2324cd9f7133" />
   
-agora eu tenho poder nas minhas mãos....... grandes poderes.... imensos....
-  <div align="center">
-    
+oi você é infeliz sad emo guy 😱??? leia agoea as frases emocionais emocionantes chocantes surpreende tão lindas wue você vai cry!!!!!
+<div aling="center">
+  
+• a mate temática, é feita de temática mate. -albert ainsten
+<div aling="center">
+  
+•Paty cake paty cake with no hand. -lord z
+<div aling="center">
+  
+•levante-se, pois um longo dia nos teremos, e se descansamos.. nunca andaremos. -gumball
+<div aling="center">
+  
 </details>
