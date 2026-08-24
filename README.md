@@ -55,7 +55,7 @@ gostaria de agradecer meu [amiguinho](https://github.com/kaleidoskulls) por ter 
 <summary> fraze de inspiração semanal</summary>
 <div aling="center">
   
-oi você é infeliz sad emo guy 😱??? leia agoea as frases emocionais emocionantes chocantes surpreende tão lindas wue você vai cry!!!!!
+oi você é infeliz sad emo guy 😱??? leia agora essas frazes emocionais emocionantes chocantes maravilhosas 🇿🇦 incríveis inspiradoras!!
 <div aling="center">
   
 • a mate temática, é feita de temática mate. -albert ainsten
@@ -72,5 +72,7 @@ oi você é infeliz sad emo guy 😱??? leia agoea as frases emocionais emociona
 
   •backrooms at stake! -clark
   <div aling="center">
-    
+
+  •nos não precisamos de nada, pois temos o amor, e o amor dura pra sempre. -grace
+  <div aling="center">
 </details>
