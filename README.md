@@ -1,5 +1,6 @@
 <div align="center">
-<img width="300" height="250" alt="dmhntfj-e68431ba-cc74-4194-ae56-68c66a295d50" src="https://github.com/user-attachments/assets/29859baa-fff4-4711-a4af-bb0c8d8dfa1e" />
+<img width="300" height="300" alt="1333 Sem Título2" src="https://github.com/user-attachments/assets/0dcc0db7-9f4e-4317-b9ee-ae02afa02919" />
+
 
   
 Ohios ohios eu ser yipe e haha eu ter muitas auras
@@ -40,6 +41,10 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 • VAI SER ZOOLOGICO ENTAO OK 😭💔 zoofilos morram
 <br>
 • Hypersexual
+<br>
+<img width="150" height="150" alt="1333 Sem Título4" src="https://github.com/user-attachments/assets/a12fbc21-fc38-4e9f-baef-6761fa0e1108" />
+<div aling="center">
+
 </details>
 
 <br> 
@@ -59,37 +64,20 @@ oi você é infeliz sad emo guy 😱??? leia agora essas frazes emocionais emoci
 <div aling="center">
   
 • a mate temática, é feita de temática mate. -albert ainsten
-<div aling="center">
   
 •Paty cake paty cake with no hand. -lord z
-<div aling="center">
   
-•levante-se, pois um longo dia nos teremos, e se descansamos.. nunca andaremos. -gumball
-<div aling="center">
+•levante-se, pois um longo dia nos teremos, e se descansamos.. nunca andaremos. 
 
-•X i'm fucking engenheiro..... -four
-<div aling="center">
+•X i'm fucking engenheiro..... 
 
   •backrooms at stake! -clark
-  <div aling="center">
-
+  
   •nos não precisamos de nada, pois temos o amor, e o amor dura pra sempre. -grace
-  <div aling="center">
+
+    
+<img width="150" height="150" alt="1333 Sem Título5" src="https://github.com/user-attachments/assets/46818716-f00c-4389-a4f6-c0b13014117d" />
+
 </details>
 
-<br>
-
-<div aling="center">
-oi teste again
-
-  <div aling="center">
-<img width="220" height="220" alt="1333 Sem Título5" src="https://github.com/user-attachments/assets/eebeada6-5911-4e77-946d-22f812eb12e0" />
-    
-<img width="200" height="220" alt="1333 Sem Título2" src="https://github.com/user-attachments/assets/563c2241-7692-4941-a3c7-e62a58171bab" />
-
-<img width="200" height="220" alt="1333 Sem Título3" src="https://github.com/user-attachments/assets/f9345c33-6829-47b8-87dd-5b0b85ac3782" />
-
-<img width="220" height="220" alt="1333 Sem Título4" src="https://github.com/user-attachments/assets/899a15cc-a04f-4cd6-8a51-9d40695d7583" />
-
-<img width="200" height="220" alt="1333 Sem Título" src="https://github.com/user-attachments/assets/d8412dcd-1357-4abe-a89a-ce34158f4491" />
 
