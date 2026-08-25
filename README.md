@@ -1,5 +1,8 @@
+<img width="1400" height="240" alt="1336 Sem Título" src="https://github.com/user-attachments/assets/4928e52b-42d2-4e4c-9e60-2ef16cb8d3a3" />
+
+
 <div align="center">
-<img width="300" height="300" alt="1333 Sem Título2" src="https://github.com/user-attachments/assets/0dcc0db7-9f4e-4317-b9ee-ae02afa02919" />
+  <img width="300" height="300" alt="1333 Sem Título2" src="https://github.com/user-attachments/assets/0dcc0db7-9f4e-4317-b9ee-ae02afa02919" />
 
 
   
