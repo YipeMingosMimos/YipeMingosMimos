@@ -23,14 +23,18 @@ Flame Face (guacamelee)
 Cantarolador (msm)
 
 koro sensei (assasination classroom)
+
+<img width="150" height="150" alt="1333 Sem Título7" src="https://github.com/user-attachments/assets/80522c79-bbeb-45dd-b253-70c4e17307fa" />
+
+
 </details>
 
 <details>
 <summary> seta </summary>
 Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz 
   <div align="center">
-<img width="646" height="" alt="1000123745" src="https://github.com/user-attachments/assets/e644085f-f976-440e-a17f-102116fcd566" />
 
+  <img width="646" height="" alt="1000123745" src="https://github.com/user-attachments/assets/e644085f-f976-440e-a17f-102116fcd566">
 </details>
 
 <details>
@@ -78,7 +82,7 @@ oi você é infeliz sad emo guy 😱??? leia agora essas frazes emocionais emoci
   
   •nos não precisamos de nada, pois temos o amor, e o amor dura pra sempre. -grace
   
-•o peixe que anda pra frente é sempre o amis bonito. -eu não me lembro ok
+•o peixe que anda pra frente é sempre o mais bonito. -eu não me lembro ok
 
 <img width="150" height="150" alt="1333 Sem Título5" src="https://github.com/user-attachments/assets/46818716-f00c-4389-a4f6-c0b13014117d" />
 
