@@ -77,8 +77,9 @@ oi você é infeliz sad emo guy 😱??? leia agora essas frazes emocionais emoci
   •backrooms at stake! -clark
   
   •nos não precisamos de nada, pois temos o amor, e o amor dura pra sempre. -grace
+  
+•o peixe que anda pra frente é sempre o amis bonito. -eu não me lembro ok
 
-    
 <img width="150" height="150" alt="1333 Sem Título5" src="https://github.com/user-attachments/assets/46818716-f00c-4389-a4f6-c0b13014117d" />
 
 </details>
