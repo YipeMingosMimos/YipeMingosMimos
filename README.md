@@ -67,6 +67,8 @@ gostaria de agradecer meu [amiguinho](https://github.com/kaleidoskulls) por ter 
   
 oi você é infeliz sad emo guy 😱??? leia agora essas frazes emocionais emocionantes chocantes maravilhosas 🇿🇦 incríveis inspiradoras!!
 <div aling="center">
+
+<br>
   
 • a mate temática, é feita de temática mate. -albert ainsten
   
