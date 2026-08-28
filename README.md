@@ -72,15 +72,21 @@ oi você é infeliz sad emo guy 😱??? leia agora essas frazes emocionais emoci
   
 •Paty cake paty cake with no hand. -lord z
   
-•levante-se, pois um longo dia nos teremos, e se descansamos.. nunca andaremos. 
+•levante-se, pois um longo dia nos teremos, e se descansamos.. nunca andaremos. -gumball, eu nem me lembro se ele ja falou isso antes💔
 
-•X i'm fucking engenheiro..... 
+•X i'm fucking engenheiro..... -four
 
   •backrooms at stake! -clark
   
   •nos não precisamos de nada, pois temos o amor, e o amor dura pra sempre. -grace
   
 •o peixe que anda pra frente é sempre o mais bonito. -eu não me lembro ok
+
+•eu penso fora da caixa porwue dentro é muito apertado. -video de frazes com vozes xilingue lingue que me apareceu enquanto eu estava scrolling
+
+•por a casou você é um branhot?..... porque meu coração faz tung tung... -amigo irl Antônio 
+
+•🤔 ei!!! você!! se inscreva-se no canal para mais frazes emocionais!!! ou simplesmente me ajuda 💔💔
 
 <img width="150" height="150" alt="1333 Sem Título5" src="https://github.com/user-attachments/assets/46818716-f00c-4389-a4f6-c0b13014117d" />
 
