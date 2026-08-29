@@ -73,22 +73,18 @@ oi você é infeliz sad emo guy 😱??? leia agora essas frazes emocionais emoci
 • a mate temática, é feita de temática mate. -albert ainsten
   
 •Paty cake paty cake with no hand. -lord z
-  
-•levante-se, pois um longo dia nos teremos, e se descansamos.. nunca andaremos. -gumball, eu nem me lembro se ele ja falou isso antes💔
 
 •X i'm fucking engenheiro..... -four
 
-  •backrooms at stake! -clark
-  
-  •nos não precisamos de nada, pois temos o amor, e o amor dura pra sempre. -grace
+•backrooms at stake! -clark
   
 •o peixe que anda pra frente é sempre o mais bonito. -eu não me lembro ok
 
-•eu penso fora da caixa porwue dentro é muito apertado. -video de frazes com vozes xilingue lingue que me apareceu enquanto eu estava scrolling
+•eu penso fora da caixa porque dentro é muito apertado. -video de frazes com vozes xilingue lingue que me apareceu enquanto eu estava scrolling
 
 •por a casou você é um branhot?..... porque meu coração faz tung tung... -amigo irl Antônio 
 
-•oi então né eu sei que isso nao é fraze emocional de inspiração, mas soque tipo você já parou pra pejsa, que é tão fácil você estraga algo, e difícil arruma isso, exemplo: é fácil você estraga a confiança de um amigo, e difícil resolve o estrago que tu fez, ou, sei lá, você derruba algo no chão e quebra, é fácil isso acontecer, e é dificl voce recolher tudo, arruma oque tu fez, e papapapa muitas etapas, eu quero deixa isso aqui porque não sei, eu tavaa pensando isso já faz alguns meses, e não compartilhei pra alguém proximo. Entoa a fraze ficaria algo tipo:
+•oi então né eu sei que isso nao é fraze emocional de inspiração, mas soque tipo você já parou pra pejsa, que é tão fácil você estraga algo, e difícil arruma isso, exemplo: é fácil você estraga a confiança de um amigo, e difícil resolve o estrago que tu fez, ou, sei lá, você derruba algo no chão e quebra, é fácil isso acontecer, e é dificl voce recolher tudo, arruma oque tu fez, e papapapa muitas etapas. Eu quero deixa isso aqui porque não sei...... via ce alguem concorda isso.... e tanto que eu tava pensando isso já faz alguns meses, e não compartilhei pra alguém proximo. Então vo deixa aqui 😄 
 
 •é tão fácil você arruína algo, e tão difícil resolvê-la depois. -yipe
 
