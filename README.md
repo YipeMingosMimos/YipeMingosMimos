@@ -84,8 +84,6 @@ oi você é infeliz sad emo guy 😱??? leia agora essas frazes emocionais emoci
 
 •por a casou você é um branhot?..... porque meu coração faz tung tung... -amigo irl Antônio 
 
-•oi então né eu sei que isso nao é fraze emocional de inspiração, mas soque tipo você já parou pra pejsa, que é tão fácil você estraga algo, e difícil arruma isso, exemplo: é fácil você estraga a confiança de um amigo, e difícil resolve o estrago que tu fez, ou, sei lá, você derruba algo no chão e quebra, é fácil isso acontecer, e é dificl voce recolher tudo, arruma oque tu fez, e papapapa muitas etapas. Eu quero deixa isso aqui porque não sei...... via ce alguem concorda isso.... e tanto que eu tava pensando isso já faz alguns meses, e não compartilhei pra alguém proximo. Então vo deixa aqui 😄 
-
 •é tão fácil você arruína algo, e tão difícil resolvê-la depois. -yipe
 
 •🤔 ei!!! você!! se inscreva-se no canal para mais frazes emocionais!!! ou simplesmente me ajuda 💔💔
