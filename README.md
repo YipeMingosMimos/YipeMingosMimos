@@ -1,6 +1,8 @@
 
 <div align="center">
   <img width="300" height="300" alt="1333 Sem Título2" src="https://github.com/user-attachments/assets/0dcc0db7-9f4e-4317-b9ee-ae02afa02919" />
+  <br>
+<img width="150" height="20" alt="1000189295" src="https://github.com/user-attachments/assets/932d5c5a-a7ef-41bd-b39e-6274f12724f1" />
 
 <br>
   
