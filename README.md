@@ -2,13 +2,15 @@
 <div align="center">
   <img width="300" height="300" alt="1333 Sem Título2" src="https://github.com/user-attachments/assets/0dcc0db7-9f4e-4317-b9ee-ae02afa02919" />
 
-
+<br>
   
+<img width="15" height="15" alt="1000189217" src="https://github.com/user-attachments/assets/467fd050-9f73-4c47-9d55-51338331524e" />
 Ohios ohios eu ser yipe e haha eu ter muitas auras
 
 E sim, eu ser mogado as vezes mas isso deixa de canto 😂
 <details>
-<summary> oi kin </summary>
+<summary> <img width="20" height="20" alt="1000189214" src="https://github.com/user-attachments/assets/f2130168-cf09-45c2-a115-527edf356542" />
+oi kin </summary>
 <div align="center">
 
 guhu eu ser ki da 
@@ -28,7 +30,8 @@ koro sensei (assasination classroom)
 </details>
 
 <details>
-<summary> seta </summary>
+<summary> <img width="20" height="20" alt="1000189213" src="https://github.com/user-attachments/assets/0327486e-f011-4263-ac56-821fc1620cbf" />
+ seta </summary>
 Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz 
   <div align="center">
 
@@ -36,7 +39,7 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 </details>
 
 <details>
-<summary>  DNI </summary>
+<summary> <img width="20" height="20" alt="1000189214" src="https://github.com/user-attachments/assets/f2130168-cf09-45c2-a115-527edf356542" />  DNI </summary>
 • Pessoal que usa ;-; a CADA segundo
   <br>
 • Uma pessoa de maior com segundas intenções /MAP
@@ -55,6 +58,8 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 <br> 
 
 
+<img width="15" height="15" alt="1000189217" src="https://github.com/user-attachments/assets/1fda00ae-e8eb-45ad-8dad-423e46ceffc9" />
+
 gostaria de agradecer meu [amiguinho](https://github.com/kaleidoskulls) por ter feito pra mim 😄 
 <div align="center">
 <img width="142" height="120" alt="1000123761" src="https://github.com/user-attachments/assets/ca58f3d7-6bf3-47f9-9756-31fe030b77d5" />
@@ -62,7 +67,7 @@ gostaria de agradecer meu [amiguinho](https://github.com/kaleidoskulls) por ter 
 <br>
 
   <details>
-<summary> fraze de inspiração semanal</summary>
+<summary> <img width="20" height="20" alt="1000189214" src="https://github.com/user-attachments/assets/f2130168-cf09-45c2-a115-527edf356542" />fraze de inspiração semanal</summary>
 <div aling="center">
   
 oi você é infeliz sad emo guy 😱??? leia agora essas frazes emocionais emocionantes chocantes maravilhosas 🇿🇦 incríveis inspiradoras!!
