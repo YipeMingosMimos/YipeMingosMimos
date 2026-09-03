@@ -109,4 +109,8 @@ gostaria de agradecer meu [amiguinho](https://github.com/kaleidoskulls) por ter 
 
 <img width="300" height="300" alt="5884614" src="https://github.com/user-attachments/assets/d61fbf3d-5d70-4d39-bd1c-2dc7c9419c40" />
 
+<details>
+<summary>segredo super secreto</summary>
+
+<img width="100" height="78" alt="miu" src="https://github.com/user-attachments/assets/f3a0bf30-5538-4ddc-8f0c-105bbf7ae307" />
 
