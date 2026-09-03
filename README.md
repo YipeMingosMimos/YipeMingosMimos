@@ -94,21 +94,19 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 
 <br>
 
-gostaria de agradecer meu [amiguinho](https://github.com/kaleidoskulls) por ter feito pra mim 😄 
+gostaria de agradecer meu [amiguinho](https://github.com/kaleidoskulls) por ter feito pra mim algumas partes e ter ajudado 😄 
 <div align="center">
 <img width="142" height="120" alt="1000123761" src="https://github.com/user-attachments/assets/ca58f3d7-6bf3-47f9-9756-31fe030b77d5" />
 
-
-
-
+<br>
+ 
+<img width="600" height="16" alt="645884995-a7b7df2f-220b-463a-a9a6-0bce79c84dfd" src="https://github.com/user-attachments/assets/dda08259-2b0b-41a8-9b07-2233383dec28" />
 
 <br>
 
 <details>
-<summary> la peace </summary>
+<summary> RIP frazes inspiradoras semanais </summary>
 
-<img width="900" height="310" alt="omg-bubble" src="https://github.com/user-attachments/assets/9b2b5d41-6bd6-4618-8447-1e36a0b3711f" />
-
-
+<img width="300" height="300" alt="5884614" src="https://github.com/user-attachments/assets/d61fbf3d-5d70-4d39-bd1c-2dc7c9419c40" />
 
 
