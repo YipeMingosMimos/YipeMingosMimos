@@ -62,8 +62,6 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
   <div align="center">
 
   <img width="646" height="" alt="1000123745" src="https://github.com/user-attachments/assets/e644085f-f976-440e-a17f-102116fcd566">
-<br>
-<img width="150" height="150" alt="1333 Sem Título2" src="https://github.com/user-attachments/assets/0dcc0db7-9f4e-4317-b9ee-ae02afa02919" />
 
   
 </details>
