@@ -87,10 +87,28 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 <summary> <img width="20" height="20" alt="1000189213" src="https://github.com/user-attachments/assets/0327486e-f011-4263-ac56-821fc1620cbf" />
  fatos legais </summary>
 
-sobre progresso.......
+isso é meu time no pokemon shield, e é tudo meus pokemo favorito mwa neles
+<br>
+(os shiny fazem parte do time não foi erro ta🤫)
+
+<img width="100" height="129" alt="lycanroc-midnight" src="https://github.com/user-attachments/assets/739662b3-b61f-4903-8e1a-07cc34292379" />
+
+<img width="100" height="129" alt="969" src="https://github.com/user-attachments/assets/1f878ddb-de09-4f21-a627-2a5c2a906b0a" />
+
+<img width="140" height="129" alt="479" src="https://github.com/user-attachments/assets/397a9afd-723a-4a0d-b8f0-fff9fb9fce04" />
+<br>
+<img width="100" height="129" alt="jolteon-pokemon" src="https://github.com/user-attachments/assets/cfbecd7d-7053-4610-924d-701b6eadc8a3" />
+
+<img width="120" height="129" alt="815" src="https://github.com/user-attachments/assets/c1d76e40-0006-45ad-80a9-0ee33bc4bdf1" />
+
+<img width="100" height="129" alt="primarina" src="https://github.com/user-attachments/assets/788e23d3-f134-4060-aa18-9be8e217baae" />
 <br>
 
-<img width="360" height="360" alt="images - 2026-09-25T192734 051" src="https://github.com/user-attachments/assets/fda6bc37-6e45-4b8b-9be4-acd9ffeef8a5" />
+<br>
+eu irl, prefiro que os outros me chame de geladeira Electrolux porque é um jeito de eu escapar dos pronomes femininos/contar aos outros que eu sou trans, e tanto que é bem Funny 😂, eu prefiro bem mais que me chamem de geladeira Electrolux 4 portas com rodas, doque me chamar com pronomes femininos, além de que eu ficarei muito feliz se você usar pronomes masculinos quando for se referir a mim
+<br>
+-daqui alguns dias eu apago isso tá 😂-
+
 
 
 </details>
