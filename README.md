@@ -80,8 +80,17 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 <br>
 <img width="150" height="150" alt="1333 Sem Título4" src="https://github.com/user-attachments/assets/a12fbc21-fc38-4e9f-baef-6761fa0e1108" />
 <div aling="center">
+</details>
 
+
+<details>
+<summary> <img width="20" height="20" alt="1000189213" src="https://github.com/user-attachments/assets/0327486e-f011-4263-ac56-821fc1620cbf" />
+ fatos legais </summary>
+
+sobre progresso.......
 <br>
+
+<img width="360" height="360" alt="images - 2026-09-25T192734 051" src="https://github.com/user-attachments/assets/fda6bc37-6e45-4b8b-9be4-acd9ffeef8a5" />
 
 
 </details>
