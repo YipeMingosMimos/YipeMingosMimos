@@ -105,9 +105,7 @@ isso é meu time no pokemon shield, e é tudo meus pokemo favorito mwa neles
 <br>
 
 <br>
-eu irl, prefiro que os outros me chame de geladeira Electrolux porque é um jeito de eu escapar dos pronomes femininos/contar aos outros que eu sou trans, e tanto que é bem Funny 😂, eu prefiro bem mais que me chamem de geladeira Electrolux 4 portas com rodas, doque me chamar com pronomes femininos, além de que eu ficarei muito feliz se você usar pronomes masculinos quando for se referir a mim
-<br>
--daqui alguns dias eu apago isso tá 😂-
+🤔 
 
 
 
