@@ -10,7 +10,7 @@
  <img width="370" height="260" alt="1382 Sem Título2_20261028170520" src="https://github.com/user-attachments/assets/ff60befc-fb5a-43ee-b35a-30cac0f05f1a" />
 
 
-<img width="8" height="260" alt="images (47)" src="https://github.com/user-attachments/assets/044806cc-4d10-4dc2-a2da-2c882a4e1a02" />
+<img width="8" height="260" alt="download" src="https://github.com/user-attachments/assets/b6ada8ef-e099-49ea-9f10-8e6c9929b13b" />
 
 
   <br> 
@@ -86,7 +86,7 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 
 
 <details>
-<summary> <img width="20" height="20" alt="1000189213" src="https://github.com/user-attachments/assets/0327486e-f011-4263-ac56-821fc1620cbf" />
+<summary> <img width="20" height="20" alt="mail6" src="https://github.com/user-attachments/assets/0f5576fc-33e1-440b-8e46-ba592e3452c7" />
  fatos legais </summary>
 
 isso é meu time no pokemon shield, e é tudo meus pokemo favorito mwa neles
