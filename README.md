@@ -3,13 +3,14 @@
 
 <br>
 
-<img width="54" height="54" alt="bubbles" src="https://github.com/user-attachments/assets/975044c2-db11-4c9b-a9f3-6df29e302814" />
+<img width="8" height="260" alt="images (46)" src="https://github.com/user-attachments/assets/9e6be652-a7ff-48d7-878e-cea40cc352cc" />
+
 
 
  <img width="370" height="260" alt="1382 Sem Título2_20261028170520" src="https://github.com/user-attachments/assets/ff60befc-fb5a-43ee-b35a-30cac0f05f1a" />
 
 
-<img width="54" height="54" alt="bubbles" src="https://github.com/user-attachments/assets/9f4cf2b3-adb7-494a-bcfc-83bd3af860a6" />
+<img width="8" height="260" alt="images (47)" src="https://github.com/user-attachments/assets/044806cc-4d10-4dc2-a2da-2c882a4e1a02" />
 
 
   <br> 
@@ -55,7 +56,7 @@ oi kin </summary>
 </details>
 
 <details>
-<summary> <img width="20" height="20" alt="1000189213" src="https://github.com/user-attachments/assets/0327486e-f011-4263-ac56-821fc1620cbf" />
+<summary> <img width="20" height="20" alt="mail6" src="https://github.com/user-attachments/assets/e14dc471-b071-444e-98cc-aff590662c3a" />
  seta </summary>
 
 Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz 
@@ -106,7 +107,13 @@ isso é meu time no pokemon shield, e é tudo meus pokemo favorito mwa neles
 <br>
 
 <br>
-🤔 
+ 
+
+eu tenho laudo de tdah tá..... e dem oi pra mitty e pro gaburoon💕
+
+<img width="120" height="74" alt="RrThzqPdLtQ_rtYom76lioB_CDo7PtKfP3XdC47jEXnbqMHkwXJptm9piJ3qD_1Ortcnwl4fK1CVqS66fQwUuKuu4l0uT8NJnWkSK5tHBjORyEUzhHAyuVik5ss5r6i4" src="https://github.com/user-attachments/assets/dcb471cc-5862-4a42-bd88-7fc8109c82d9" />
+
+<img width="120" height="74" alt="tumblr_3c31b2374453fcab87e05ec8d9f13c01_13373b8e_640" src="https://github.com/user-attachments/assets/e7e2ffad-c94d-435b-af7f-4f28a8c85508" />
 
 
 
