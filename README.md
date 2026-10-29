@@ -7,8 +7,8 @@
 <img width="54" height="54" alt="bubbles" src="https://github.com/user-attachments/assets/975044c2-db11-4c9b-a9f3-6df29e302814" />
 
 
- 
-<img width="300" height="200" alt="helvetica-aqua-aero" src="https://github.com/user-attachments/assets/8cfa120c-1cc6-43b1-acda-7d9685f6c12b" />
+ <img width="340" height="240" alt="1382 Sem Título2_20261028170520" src="https://github.com/user-attachments/assets/ff60befc-fb5a-43ee-b35a-30cac0f05f1a" />
+
 
 <img width="54" height="54" alt="bubbles" src="https://github.com/user-attachments/assets/9f4cf2b3-adb7-494a-bcfc-83bd3af860a6" />
 
