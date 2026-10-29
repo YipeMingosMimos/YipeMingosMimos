@@ -111,9 +111,7 @@ isso é meu time no pokemon shield, e é tudo meus pokemo favorito mwa neles
 
 eu tenho laudo de tdah tá..... e dem oi pra mitty e pro gaburoon💕
 
-<img width="120" height="74" alt="RrThzqPdLtQ_rtYom76lioB_CDo7PtKfP3XdC47jEXnbqMHkwXJptm9piJ3qD_1Ortcnwl4fK1CVqS66fQwUuKuu4l0uT8NJnWkSK5tHBjORyEUzhHAyuVik5ss5r6i4" src="https://github.com/user-attachments/assets/dcb471cc-5862-4a42-bd88-7fc8109c82d9" />
-
-<img width="120" height="74" alt="tumblr_3c31b2374453fcab87e05ec8d9f13c01_13373b8e_640" src="https://github.com/user-attachments/assets/e7e2ffad-c94d-435b-af7f-4f28a8c85508" />
+<img width="204" height="143" alt="1383 Sem Título_20261029165514" src="https://github.com/user-attachments/assets/265a5d85-3fa0-4e9d-bbcd-f90cbcdcb71f" />
 
 
 
