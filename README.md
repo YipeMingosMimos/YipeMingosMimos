@@ -6,7 +6,7 @@
 <img width="54" height="54" alt="bubbles" src="https://github.com/user-attachments/assets/975044c2-db11-4c9b-a9f3-6df29e302814" />
 
 
- <img width="340" height="240" alt="1382 Sem Título2_20261028170520" src="https://github.com/user-attachments/assets/ff60befc-fb5a-43ee-b35a-30cac0f05f1a" />
+ <img width="370" height="260" alt="1382 Sem Título2_20261028170520" src="https://github.com/user-attachments/assets/ff60befc-fb5a-43ee-b35a-30cac0f05f1a" />
 
 
 <img width="54" height="54" alt="bubbles" src="https://github.com/user-attachments/assets/9f4cf2b3-adb7-494a-bcfc-83bd3af860a6" />
@@ -24,6 +24,7 @@
   <br>
 <img width="138" height="74" alt="tumblr_0c0edf0661379b4fa47308f04af4a915_b2692c11_250" src="https://github.com/user-attachments/assets/422dbfb0-f81f-4320-a456-eb356f45a6d8" />
 
+<img width="138" height="74" alt="tumblr_fa975549b72feb752138a456a8152b46_06f75325_100" src="https://github.com/user-attachments/assets/0317a158-3a0b-47b1-9d16-1380b2c24962" />
 
 <br>
   
