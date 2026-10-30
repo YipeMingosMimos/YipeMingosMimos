@@ -1,5 +1,9 @@
 
 <div align="center">
+<br>
+
+<img width="390" height="16" alt="645884995-a7b7df2f-220b-463a-a9a6-0bce79c84dfd" src="https://github.com/user-attachments/assets/dda08259-2b0b-41a8-9b07-2233383dec28" />
+
 
 <br>
 
@@ -35,8 +39,7 @@ Ohios ohios eu ser yipe e haha eu ter muitas auras
 
 E sim, eu ser mogado as vezes mas isso deixa de canto 😂
 <details>
-<summary> <img width="20" height="20" alt="1000189214" src="https://github.com/user-attachments/assets/f2130168-cf09-45c2-a115-527edf356542" />
-
+<summary> <img width="20" height="20" alt="storm" src="https://github.com/user-attachments/assets/6120151d-24e3-4d54-98a1-6e74b032dfe7" />
  oi kin </summary>
 <div align="center">
 
@@ -70,7 +73,8 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 </details>
 
 <details>
-<summary> <img width="20" height="20" alt="1000189214" src="https://github.com/user-attachments/assets/f2130168-cf09-45c2-a115-527edf356542" />  DNI </summary>
+<summary> <img width="20" height="20" alt="storm" src="https://github.com/user-attachments/assets/4a90e9a5-8281-4263-912c-4ea2ae09fa46" />
+  DNI </summary>
 • Pessoal que usa ;-; a CADA segundo
   <br>
 • Uma pessoa de maior com segundas intenções /MAP
