@@ -36,7 +36,8 @@ Ohios ohios eu ser yipe e haha eu ter muitas auras
 E sim, eu ser mogado as vezes mas isso deixa de canto 😂
 <details>
 <summary> <img width="20" height="20" alt="1000189214" src="https://github.com/user-attachments/assets/f2130168-cf09-45c2-a115-527edf356542" />
-oi kin </summary>
+
+ oi kin </summary>
 <div align="center">
 
 
