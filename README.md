@@ -40,9 +40,11 @@ Ohios ohios eu ser yipe e haha eu ter muitas auras
 E sim, eu ser mogado as vezes mas isso deixa de canto 😂
 <details>
 <summary> <img width="20" height="20" alt="storm" src="https://github.com/user-attachments/assets/6120151d-24e3-4d54-98a1-6e74b032dfe7" />
- oi kin </summary>
+ oi kin e yume </summary>
 <div align="center">
 
+<br>
+~ kin ~
 
 •scag (Regretevator)
 
@@ -53,6 +55,11 @@ E sim, eu ser mogado as vezes mas isso deixa de canto 😂
 •Cantarolador (msm)
 
 •koro sensei (assasination classroom)
+<br>
+
+~ yume ~
+
+•dr retro (Regretevator)
 
 <img width="150" height="150" alt="1333 Sem Título7" src="https://github.com/user-attachments/assets/80522c79-bbeb-45dd-b253-70c4e17307fa" />
 
