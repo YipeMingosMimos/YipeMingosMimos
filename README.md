@@ -59,7 +59,7 @@ E sim, eu ser mogado as vezes mas isso deixa de canto 😂
 
 ~ yume ~
 
-•dr retro (Regretevator)
+•tchau dr retro eu sinto que eu deveria pensar mais sobre :  )
 
 <img width="150" height="150" alt="1333 Sem Título7" src="https://github.com/user-attachments/assets/80522c79-bbeb-45dd-b253-70c4e17307fa" />
 
