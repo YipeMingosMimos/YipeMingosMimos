@@ -8,14 +8,13 @@
 
 <br>
 
-<img width="8" height="260" alt="images (46)" src="https://github.com/user-attachments/assets/9e6be652-a7ff-48d7-878e-cea40cc352cc" />
+
 
 
 
  <img width="370" height="260" alt="1382 Sem Título2_20261028170520" src="https://github.com/user-attachments/assets/ff60befc-fb5a-43ee-b35a-30cac0f05f1a" />
 
 
-<img width="8" height="260" alt="download" src="https://github.com/user-attachments/assets/b6ada8ef-e099-49ea-9f10-8e6c9929b13b" />
 
 
   <br> 
