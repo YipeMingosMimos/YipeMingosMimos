@@ -55,6 +55,8 @@ E sim, eu ser mogado as vezes mas isso deixa de canto 😂
 •Cantarolador (msm)
 
 •koro sensei (assasination classroom)
+
+•dandy (dandy's world)
 <br>
 
 ~ yume ~
