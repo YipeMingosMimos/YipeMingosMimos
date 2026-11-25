@@ -30,7 +30,7 @@
 
 
   <br>
-
+  
 <img width="138" height="74" alt="tumblr_58ae668e87bf56476693a95a4bcb03b5_61fc4eaa_250" src="https://github.com/user-attachments/assets/6a449718-db21-4aa7-a58a-b1901adeb27c" />
 
 <img width="138" height="74" alt="every_artist_is_a_cannibal" src="https://github.com/user-attachments/assets/b6ba3991-2e97-47b9-8c8e-e5903d3eb869" />
