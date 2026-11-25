@@ -4,7 +4,7 @@
 <br>
 
 
-<img width="390" height="16" alt="645884995-a7b7df2f-220b-463a-a9a6-0bce79c84dfd" src="https://github.com/user-attachments/assets/dda08259-2b0b-41a8-9b07-2233383dec28" />
+<img width="400" height="26" alt="rotatingstars" src="https://github.com/user-attachments/assets/4de6c22a-2f5b-4276-8bc5-18d3c60a0c3e" />
 
 
 <br>
@@ -13,34 +13,41 @@
 
 
 
- <img width="370" height="260" alt="1382 Sem Título2_20261028170520" src="https://github.com/user-attachments/assets/ff60befc-fb5a-43ee-b35a-30cac0f05f1a" />
-
+<img width="420" height="260" alt="1388 Sem Título_20261109215124" src="https://github.com/user-attachments/assets/7e7c9e96-a46f-4465-b7aa-757c5ad03c77" />
 
 
 
   <br> 
 
-<img width="170" height="25" alt="645884958-682cc2eb-4dad-4bba-aa3c-beee2afc353c" src="https://github.com/user-attachments/assets/f0b41947-2d79-4834-b885-b4609a26328e" />
+<img width="170" height="25" alt="ITS PIZZA TIME!" src="https://github.com/user-attachments/assets/26e6e030-1000-4f0c-a18c-0bdd9779c331" />
 
-<img width="170" height="25" alt="tumblr_99ed52efde9954c0927f679a1124319f_ecda635a_250" src="https://github.com/user-attachments/assets/df446895-e1f8-4dff-8d19-17ff1efa89df" />
 
-<img width="170" height="25" alt="blinkiebug1" src="https://github.com/user-attachments/assets/72b47970-cc2a-458c-8800-d267a69c1744" />
+<img width="170" height="25" alt="tumblr_2d0b60ca530b10f2e0d85e39300f104f_da0ac2b3_250" src="https://github.com/user-attachments/assets/4ea982fd-9c3d-44ee-ad84-36c183653eba" />
+
+<img width="170" height="25" alt="Carnivore" src="https://github.com/user-attachments/assets/139bd2c2-90fc-4638-adda-d97197204610" />
+
+
 
 
   <br>
-<img width="138" height="74" alt="tumblr_0c0edf0661379b4fa47308f04af4a915_b2692c11_250" src="https://github.com/user-attachments/assets/422dbfb0-f81f-4320-a456-eb356f45a6d8" />
 
-<img width="138" height="74" alt="tumblr_fa975549b72feb752138a456a8152b46_06f75325_100" src="https://github.com/user-attachments/assets/0317a158-3a0b-47b1-9d16-1380b2c24962" />
+<img width="138" height="74" alt="tumblr_58ae668e87bf56476693a95a4bcb03b5_61fc4eaa_250" src="https://github.com/user-attachments/assets/6a449718-db21-4aa7-a58a-b1901adeb27c" />
+
+<img width="138" height="74" alt="every_artist_is_a_cannibal" src="https://github.com/user-attachments/assets/b6ba3991-2e97-47b9-8c8e-e5903d3eb869" />
+
+<img width="138" height="74" alt="tumblr_5b19158b9637785b0fd14516b6ad26d3_e7dc2f0a_100" src="https://github.com/user-attachments/assets/7f418206-b4de-44a2-9d2d-2dc67f24a01f" />
+
 
 <br>
   
-<img width="600" height="16" alt="645884995-a7b7df2f-220b-463a-a9a6-0bce79c84dfd" src="https://github.com/user-attachments/assets/dda08259-2b0b-41a8-9b07-2233383dec28" />
+ <img width="796" height="28" alt="alternatestars" src="https://github.com/user-attachments/assets/1ffddbeb-b316-40bc-bf99-497090888368" />
+
 
 Ohios ohios eu ser yipe e haha eu ter muitas auras
 
 E sim, eu ser mogado as vezes mas isso deixa de canto 😂
 <details>
-<summary> <img width="20" height="20" alt="storm" src="https://github.com/user-attachments/assets/6120151d-24e3-4d54-98a1-6e74b032dfe7" />
+<summary> <img width="20" height="20" alt="star120" src="https://github.com/user-attachments/assets/f352a1c1-5445-41b8-b122-8d75326d48ed" />
  oi kin e yume </summary>
 <div align="center">
 
@@ -70,7 +77,7 @@ E sim, eu ser mogado as vezes mas isso deixa de canto 😂
 </details>
 
 <details>
-<summary> <img width="20" height="20" alt="mail6" src="https://github.com/user-attachments/assets/e14dc471-b071-444e-98cc-aff590662c3a" />
+<summary> <img width="20" height="20" alt="moon3" src="https://github.com/user-attachments/assets/032d13bc-da05-416d-9c61-68017f4bcb29" />
  seta </summary>
 
 Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz 
@@ -83,8 +90,7 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 </details>
 
 <details>
-<summary> <img width="20" height="20" alt="storm" src="https://github.com/user-attachments/assets/4a90e9a5-8281-4263-912c-4ea2ae09fa46" />
-  DNI </summary>
+<summary> <img width="20" height="20" alt="star120" src="https://github.com/user-attachments/assets/a375432f-abcd-420b-8a00-36559c3940f8" /> DNI </summary>
 • Pessoal que usa ;-; a CADA segundo
   <br>
 • Uma pessoa de maior com segundas intenções /MAP
@@ -101,7 +107,7 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 
 
 <details>
-<summary> <img width="20" height="20" alt="mail6" src="https://github.com/user-attachments/assets/0f5576fc-33e1-440b-8e46-ba592e3452c7" />
+<summary> <img width="20" height="20" alt="moon3" src="https://github.com/user-attachments/assets/bff0093f-ca40-43cc-9dab-8bd84a0c1489" />
  fatos legais </summary>
 
 isso é meu time no pokemon shield, e é tudo meus pokemo favorito mwa neles
@@ -134,7 +140,8 @@ eu tenho laudo de tdah tá..... e dem oi pra mitty e pro gaburoon💕
 
 <br> 
 
-<img width="600" height="16" alt="645884995-a7b7df2f-220b-463a-a9a6-0bce79c84dfd" src="https://github.com/user-attachments/assets/dda08259-2b0b-41a8-9b07-2233383dec28" />
+<img width="570" height="28" alt="rotatingstars" src="https://github.com/user-attachments/assets/9adc448e-ae52-450e-bb7d-7f8a36c5f6d4" />
+
 
 <br>
 
@@ -144,7 +151,8 @@ gostaria de agradecer meu [amiguinho](https://github.com/kaleidoskulls) por ter 
 
 <br>
  
-<img width="600" height="16" alt="645884995-a7b7df2f-220b-463a-a9a6-0bce79c84dfd" src="https://github.com/user-attachments/assets/dda08259-2b0b-41a8-9b07-2233383dec28" />
+<img width="500" height="22" alt="alternatestars" src="https://github.com/user-attachments/assets/ead90758-0407-4f1b-bc55-3dd1dadb6c54" />
+
 
 <br>
 
