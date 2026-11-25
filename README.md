@@ -71,7 +71,8 @@ E sim, eu ser mogado as vezes mas isso deixa de canto 😂
 
 •tchau dr retro eu sinto que eu deveria pensar mais sobre :  )
 
-<img width="150" height="150" alt="1333 Sem Título7" src="https://github.com/user-attachments/assets/80522c79-bbeb-45dd-b253-70c4e17307fa" />
+<img width="150" height="150" alt="1400 Sem Título_20261125154209" src="https://github.com/user-attachments/assets/4868423d-97c2-4314-8b06-7145fcd65dcd" />
+
 
 
 </details>
@@ -102,7 +103,8 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 <br>
 • Hypersexual
 <br>
-<img width="150" height="150" alt="1333 Sem Título4" src="https://github.com/user-attachments/assets/a12fbc21-fc38-4e9f-baef-6761fa0e1108" />
+<img width="150" height="150" alt="1401 Sem Título_20261125154433" src="https://github.com/user-attachments/assets/bdf132b3-f961-4a56-ae37-c5943afbafb6" />
+
 <div aling="center">
 </details>
 
