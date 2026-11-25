@@ -47,7 +47,7 @@ Ohios ohios eu ser yipe e haha eu ter muitas auras
 
 E sim, eu ser mogado as vezes mas isso deixa de canto 😂
 <details>
-<summary> <img width="20" height="20" alt="star120" src="https://github.com/user-attachments/assets/f352a1c1-5445-41b8-b122-8d75326d48ed" />
+<summary>  <img width="20" height="20" alt="star131" src="https://github.com/user-attachments/assets/d63afa91-ce17-41dd-b391-f973a90ee26f" />
  oi kin e yume </summary>
 <div align="center">
 
@@ -90,7 +90,8 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 </details>
 
 <details>
-<summary> <img width="20" height="20" alt="star120" src="https://github.com/user-attachments/assets/a375432f-abcd-420b-8a00-36559c3940f8" /> DNI </summary>
+<summary> <img width="20" height="20" alt="star131" src="https://github.com/user-attachments/assets/1df87cb9-ab2f-466c-aa5b-504d34a6d495" />
+ DNI </summary>
 • Pessoal que usa ;-; a CADA segundo
   <br>
 • Uma pessoa de maior com segundas intenções /MAP
