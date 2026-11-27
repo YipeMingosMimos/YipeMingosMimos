@@ -101,8 +101,10 @@ Bem, eu gostar muito de coisas simpáticas elas me fazem feliz feliz
 <br>
 • VAI SER ZOOLOGICO ENTAO OK 😭💔 zoofilos morram
 <br>
-• Hypersexual
+• Hypersexuais/pessoas que romântizam sexo
 <br>
+• pessoas que romantizam sh
+  <br>
 <img width="150" height="150" alt="1401 Sem Título_20261125154433" src="https://github.com/user-attachments/assets/bdf132b3-f961-4a56-ae37-c5943afbafb6" />
 
 <div aling="center">
